@@ -21,12 +21,22 @@ Refrence: W3 Schools, 2024. Learn to Code. [Online]
   Available at: https://www.mswaffles.co.za/about
   [Accessed September 2024].
   ALD Professional kitchen equipment. 2022. Benefits of a stick waffle maker over the standard waffle maker. [Online] Available at: https://ald.kitchen/blogs/news/benefits-of-a-stick-waffle-maker-over-the-standard-waffle-maker
+  
  The produce moms. 2021. Waffle Pops (Waffle on a stick) [online] Available at: https://www.theproducemoms.com/waffle-pops-waffles-on-a-stick/
+ 
  taste.com.au. 2024. Waffle with caramel sauce and ice cream [Online] Available at: https://www.taste.com.au/recipes/waffles-caramel-sauce-ice-cream/bpbpxhec
+ 
  delish. 2022. 26 easy milkshake recipes that will rock your world [Online] Available at: https://www.delish.com/cooking/g1504/milkshake-recipes/
+ 
  pngtree. 2023. Dozen Milkshakes with Different Flavour Combinations Background [Online] Available at: https://pngtree.com/freebackground/dozen-milkshakes-with-different-flavor-combinations_3144846.html
+ 
  adobe stock. 2024. [Online] Available at: https://stock.adobe.com/za/search/images?k=chocolate+brownie+with+ice+cream
+ 
  Dinner at the zoo. 2023. Oreo brownies [Online] Available at: https://www.dinneratthezoo.com/oreo-brownies/
+ 
  KTCHN rebel. 2022. Ice cream: the science behind the frosty treat [Online] Available at: https://www.ktchnrebel.com/ice-cream-the-science-behind-the-frosty-treat/
+ 
  Gemma’s bigger bolder baking.2024. The easiest homemade ice cream recipe [Online] Available at: https://www.biggerbolderbaking.com/homemade-ice-cream/
+ 
  Quora. [s.a.]. what is the best ice cream in the world. [Online] Available at: https://www.quora.com/What-is-the-best-ice-cream-in-the-world-according-to-your-taste-buds
+ 
